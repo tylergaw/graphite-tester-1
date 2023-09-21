@@ -35,35 +35,42 @@ But don’t misuse it, be fair as can be.
 If you break the rules, you’ll have to leave,
 From TwinkleLand, where we believe! 🎶
 
-## 6. Disputes and Resolution 🌿
+## 6. The Land of Infinite Pudding 🍮
+
+🎶 In TwinkleLand, there’s a place so sweet,
+Where pudding is endless, a real treat!
+But eat with care, don’t be too greedy,
+In TwinkleLand, we share with the needy! 🎶
+
+## 7. Disputes and Resolution 🌿
 
 🎶 If a problem arises, don’t fret, don’t frown,
 We’ll solve it together, we’ll never let you down.
 With a sprinkle of kindness, and a dash of grace,
 In TwinkleLand, we’ll find a happy place! 🎶
 
-## 7. Changes to Terms 🌟
+## 8. Changes to Terms 🌟
 
 🎶 Sometimes we must change, evolve, and grow,
 Update our terms, to go with the flow.
 We’ll notify you, with a song and a dance,
 In TwinkleLand, we give every chance! 🎶
 
-## 8. Termination of Service 🍂
+## 9. Termination of Service 🍂
 
 🎶 If the time comes to say goodbye,
 We’ll part with a hug, and maybe a sigh.
 Remember the joy, the laughter, the cheer,
 In TwinkleLand, you’re always near! 🎶
 
-## 9. Contact Us 💌
+## 10. Contact Us 💌
 
 🎶 If you have questions, or just want to talk,
 Send us a message, or maybe just walk.
 To our land of joy, where the stars always shine,
 In TwinkleLand, everything’s fine! 🎶
 
-## 10. Final Verse 🌠
+## 11. Final Verse 🌠
 
 🎶 By using our service, you sing our sweet rhyme,
 Agree to our terms, in this land so sublime.
